@@ -6,6 +6,12 @@
 - 😄 Pronouns: ... He/His/Him
 - ⚡ Fun fact: ... I might overthink but I work overtime and become hyperactive when busy
 
+
+Currently,I'm Fighting For my Admission Entrance exams for My Dream University,Keep me in your prayers,As I started programming from Last month,I need advises from you all..
+
+Basically,I'm A noob programmer tbh(Pardon me)
+
+Thank you
 <!---
 Thekoldvengeance/Thekoldvengeance is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
